@@ -55,11 +55,6 @@ Telegram 投稿 & 客服
 
 https://telegram.me/jiuyishipinwang
 
-微信 / QQ 粉丝群
-
-http://huoma.peach-av.com/t/7bmm4w
-
-
 💼 商务合作 | Business Cooperation
 商务合作请联系：
 https://official.1fff8x-t1t1.cyou/?channel=HDXY001
