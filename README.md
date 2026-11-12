@@ -62,7 +62,7 @@ http://huoma.peach-av.com/t/7bmm4w
 
 💼 商务合作 | Business Cooperation
 商务合作请联系：
-[https://u5m8n.3bidl4-t1t1.icu?channel=HDXY001](https://official.1fff8x-t1t1.cyou/?channel=HDXY001)
+https://official.1fff8x-t1t1.cyou/?channel=HDXY001
 
 🔁 最新地址获取方式（推荐）
 How to Get the Latest Address (Recommended)
